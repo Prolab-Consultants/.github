@@ -56,6 +56,10 @@ Better yet, see us in person!
 
 We love our customers, so feel free to visit during normal business hours.
 
-###### 18 Ezekia Papaioannou Str, Office 104, 1075, Nicosia, CY ######
+###### 182A Strovolos Avenue, 2048 Nicosia, Cyprus ######
 
-Phone: [00 357 22270490](tel:0035722270490)
+###### info@prolabresearch.com ######
+
+###### +357 22751175 ######
+
+###### +357 22751170 ######
